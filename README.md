@@ -1,3 +1,3 @@
 # apk
 
-[Edit in StackBlitz next generation editor ⚡️](https://stackblitz.com/~/github.com/jihadrafin/apk)
+[APK⚡️](https://t.me/modqpk_dl)
